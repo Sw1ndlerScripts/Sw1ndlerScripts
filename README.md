@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **a couple side projects, nothing too specific**
 
-- 📫 How to reach me **You can reach me through my discord, Sw1ndler#0001**
+- 📫 How to reach me **You can reach me through my discord, Sw1ndler#7733**
 
 
 <h3 align="left">Languages and Tools:</h3>
